@@ -1,0 +1,2 @@
+# mojerezpozytorium
+Pierwsze kroki
